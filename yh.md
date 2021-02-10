@@ -1,4 +1,4 @@
-# real cool skins
+#       ~real cool skins~
 
 
 # [Cookiezi 18 2016-08-08](https://mega.nz/file/KCwkSaSa#Bxus83sn5D-kNJ4suVZ5vWgpH06yXExpWyIT9FIXu1I)
@@ -23,3 +23,5 @@
 ![](https://media.discordapp.net/attachments/386033738087137300/808861050912768040/unknown.png?width=864&height=486)
 # [cent+read](https://mega.nz/file/PfQm0TiB#aZT9RuP0LB2mN8NBRxZlAs_kBIviLVts8T6nEsYcUVM)
 ![](https://media.discordapp.net/attachments/386033738087137300/808861222404358215/unknown.png?width=864&height=486)
+
+# novaer sucks
