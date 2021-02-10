@@ -1,4 +1,4 @@
-#        手绘板 real cool skins 箱评测  
+#        手绘板 real cool skins 箱评测 (read below for the full story of the romanian pen grip incident.)  
 
 
 # [Cookiezi 18 2016-08-08](https://mega.nz/file/KCwkSaSa#Bxus83sn5D-kNJ4suVZ5vWgpH06yXExpWyIT9FIXu1I)
