@@ -17,6 +17,8 @@
 ![](https://media.discordapp.net/attachments/386033738087137300/808859781522522122/unknown.png?width=864&height=486)
 # [cent+1203 HDDT](https://mega.nz/file/vLRl3A5A#otzfu5eXtHl-kaw5cZVCXu_fYeiwPKU2XweN2IK7zhM)
 ![](https://media.discordapp.net/attachments/386033738087137300/808860829717364746/unknown.png?width=864&height=486)
+# [cent+1203 HDDTv2](https://mega.nz/file/OKpWAZiT#BZPsJiC3uzgxd8k-veex_YbroqEDDCg94hqXckTUFkE)
+![](https://media.discordapp.net/attachments/271484473344917505/810284788312178749/unknown.png?width=863&height=485)
 # [cent (rustbell)](https://mega.nz/file/7GJHQCBD#dkaxTJr716OtAHCIyYuWOsDnUsv2s-XH8AiZZ2bJhpk)
 ![](https://media.discordapp.net/attachments/386033738087137300/808860522153115688/unknown.png?width=869&height=486)
 # [cent+mono](https://mega.nz/file/PPQyEZJA#4KkMNywylHwr0j3zlkMsuKAokkEKnnt87WNzhhGarI8)
