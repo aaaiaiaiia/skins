@@ -1,6 +1,8 @@
 #        手绘板 real cool skins 箱评测 (read below for the full story of the romanian pen grip incident.)  
 
 
+# [cent+sog](https://mega.nz/file/WHxGQbbR#uEHA0WY5JssRwBdIgmAk8Mo9rRSnG2gD7e-eYKQA0SI)
+![](https://media.discordapp.net/attachments/386033738087137300/817682039708975134/unknown.png?width=863&height=485)
 # [Cookiezi 18 2016-08-08](https://mega.nz/file/KCwkSaSa#Bxus83sn5D-kNJ4suVZ5vWgpH06yXExpWyIT9FIXu1I)
 ![](https://cdn.discordapp.com/attachments/386033738087137300/808852399573565450/unknown.png)
 # [Seouless+v7+-+Momoko+](https://mega.nz/file/ePQySJLK#yySKoK7ql_p6eGmIL310b0wmvAX5-OGMfI-kWqozau8)
