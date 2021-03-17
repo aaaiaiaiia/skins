@@ -2,7 +2,7 @@
 
 
 # [cent+sog](https://mega.nz/file/WHxGQbbR#uEHA0WY5JssRwBdIgmAk8Mo9rRSnG2gD7e-eYKQA0SI)
-![](https://media.discordapp.net/attachments/386033738087137300/817682039708975134/unknown.png?width=863&height=485)
+![](https://media.discordapp.net/attachments/386033738087137300/821564731261321216/unknown.png?width=863&height=485)
 # [cent+read](https://mega.nz/file/GHhlVYgS#vjSGAtCPZHBNqN-JepNQ1V03ieBH4VpPv-TMryCzFLc)
 ![](https://media.discordapp.net/attachments/386033738087137300/818699108654383114/unknown.png?width=863&height=485)
 # [Cookiezi 18 2016-08-08](https://mega.nz/file/KCwkSaSa#Bxus83sn5D-kNJ4suVZ5vWgpH06yXExpWyIT9FIXu1I)
